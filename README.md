@@ -1,5 +1,5 @@
 - 👋 Hi, I’m CreepyPasta404
-- 👀 I’m interested in Hacking :)
+- 👀 I’m interested in Gaming :)
 - 🌱 I’m currently learning Computer Applications
 - 📫 How to reach me - (instagram) @creepy_pasta404 
 - :) :) :) :)
